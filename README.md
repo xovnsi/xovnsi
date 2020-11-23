@@ -1,4 +1,4 @@
-# Hi there 👋
+# Witam! 👋
 
 ### Zapraszam na moją *[stronę][strona]* :flushed:
 
